@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Nixer3
 - 👀 I’m interested in: happy life
 - 🌱 I’m currently learning: how to live a happy life  (also expert C by Peter Van Der Linden)
-- 💞️ I’m looking to collaborate on: life
 - 📫 How to reach me: slowly and confidently
 
 <h4> Currently: failing in most of my interests
